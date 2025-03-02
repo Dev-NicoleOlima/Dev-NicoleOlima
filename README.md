@@ -35,7 +35,7 @@
 
 ###
 
-<img align="right" height="150" src="[https://www.google.com/url?sa=i&url=https%3A%2F%2Fbr.pinterest.com%2Fmoon_ofc1%2Floira-de-olhos-verdes%2F&psig=AOvVaw2lL3W8HsJAF1aww-xbQDOy&ust=1741028469587000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCLC-6dGK7IsDFQAAAAAdAAAAABAE](https://images.app.goo.gl/hAhAeVfKiKp57x2x5)" />
+<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif" />
 
 ###
 
